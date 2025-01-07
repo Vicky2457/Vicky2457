@@ -26,7 +26,7 @@
 - 📫 How to reach me:
   - **GitHub:** [Vicky2457](https://github.com/Vicky2457) 🌟
   - **LinkedIn:** [Vicky's LinkedIn](https://www.linkedin.com/in/vicky96k?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 💼
-  - **Email:** your-email@example.com 📧
+  - **Email:** vickykadam2457@gmail.com 📧
 
 - 📄 Know about my experiences: 
   - [Resume](https://drive.google.com/file/d/1jHSfbto9lwRS2ZHURHXT3ryce2Pa015r/view?usp=drive_link)
